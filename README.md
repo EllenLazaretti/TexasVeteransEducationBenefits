@@ -16,10 +16,8 @@ _This project would benefit military families, and ultimately our community. Edu
 
 ## Issue area(s) relevant to your project idea:
 
-- Children & Youth
-- Economic Opportunity & Development
+
 - Education
-- Open Government/Transparency
 - Veteran and military families
 
 ## What is the current state of your project idea?
