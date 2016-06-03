@@ -32,7 +32,8 @@ http://www.benefits.va.gov/gibill/
 http://www.collegeforalltexans.com/index.cfm?objectid=6d14a588-f337-de9f-c34472e57102fa06
 http://www.tvc.texas.gov/Hazlewood-Act.aspx
 http://www.benefits.va.gov/gibill/news.asp
-http://now.uiowa.edu/2014/05/va-partners-ui-pilot-program-veteran-education_
+http://now.uiowa.edu/2014/05/va-partners-ui-pilot-program-veteran-education
+http://www.rehab.research.va.gov/jour/2013/508/jrrd-2013-09-0204.html_
 
 ## Tell us about yourself. 
 ### What is your background? Why is this challenge important to you? 
